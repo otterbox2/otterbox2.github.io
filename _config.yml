@@ -1,0 +1,6 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://otterbox2.github.io
+title: Otterbox
+paginate: 10
