@@ -1,0 +1,6 @@
+---
+published: true
+title: YOKA match editor in Chief Anna Wintour dressed (2)
+layout: post
+---
+The hot of The Devil Wears Prada, everyone\'s curiosity about female fashion magazine editor rose. These are called \"the Devil Wears Prada\" woman is the true Queen of fashion, desire for everything in this vanity with something as a couple has the right to wield absolute power, if they can enter their discernment, natural reemergence. They are not stars, but the big fashion show for the first row of seats are always reserved for them, they don\'t appear, fashion shows never start without their support, leaving all the wonderful show of regret. The hottest new they served every season, dress styles, more dazzling than the stars. Today the case of famous Anna Wintour, \"the Devil Wears Prada\" what to wear.Furs show POWERFUL LOOK [Your business attire color gadget](http://www.faybag.com/2016/02/20/your-business-attire-color-gadget/)Wild Leopard, deep, elegant color, trim rigorous set, giving the feeling of luxury furs is a favorite of his sister Anna, dressed like this she has full Power, anger from the Wei. [Your business attire color gadget](http://www.faybag.com/2016/02/20/your-business-attire-color-gadget/)Annayoka dress matching Devil Wears Prada dress, editor Vanity Fair magazine
